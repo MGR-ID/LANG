@@ -31,7 +31,7 @@ Selamat datang di repositori ini!
 ## ✍️ Penulis
 
 Made with ❤️ by **Dr. Gilang (MGR-ID)**  
-🔗 Instagram: [@nama_anda](https://instagram.com/...)
+🔗 Instagram: [@glngshndr](https://instagram.com/glngshndr)
 
 ---
 
