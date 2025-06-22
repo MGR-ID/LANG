@@ -1,1 +1,1 @@
-# MGR-ID 
+# LANG Repository
